@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 so exited to learn 
 
 <!--
 **ghendaew1/ghendaew1** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
